@@ -1,0 +1,1 @@
+Ever on and on, the carousel of agony spins.
